@@ -4,7 +4,7 @@ MORE than free to approach, i love being talked to first! If i'm offtab or simpl
 
 I'm fine with (and approve of) cuddles, hiding and smooches, just use that privilage appropriately! HEAVY RP DNI, please respect it!
 
-I LOVE making new friends, though be warned that i often feel just as nervous and definitely will appear super awkward at first. <3 I only use local chatting among many friends.
+I LOVE making new friends, though be warned that i often feel just as nervous and definitely will appear super awkward at first. <3 I only use local chatting among many friends, and i like to sit under trees..
 
 For stuff already mentioned here, consider reading my info page too!
 https://ponytowninf.straw.page
