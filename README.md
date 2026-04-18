@@ -8,5 +8,4 @@ I LOVE making new friends, though be warned that i often feel just as nervous an
 
 Usual spots i sit at are under trees or corners of the map! My Git is tagged in the ponies i use.
 
-For stuff already mentioned here, consider reading my info page too!
-https://ponytowninf.straw.page
+For more detailed info about me, please consider reading my spacehey! (or even add me. <3)
